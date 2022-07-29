@@ -9,5 +9,8 @@ Den officale skid liste:
 > **MR.0SINT#1337**
 - "Ejer DukkeSquad": Det mest cringe squad til data, fuld a mongoler som tror de er de mest farlige hackere.
 
+> **!Daddy#0404**
+- "Med Ejer DukkeSquad": Bare nej
+
 
 
