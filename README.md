@@ -10,7 +10,7 @@ Den officale skid liste:
 - "Ejer DukkeSquad": Det mest cringe squad til data, fuld a mongoler som tror de er de mest farlige hackere.
 
 > **!Daddy#0404**
-- "Med Ejer DukkeSquad": Bare nej
+- "Med Ejer for DukkeSquad": Bare nej
 
 
 
