@@ -12,5 +12,7 @@ Den officale skid liste:
 > **!Daddy#0404**
 - "Med Ejer for DukkeSquad": Bare nej
 
+> **Kisoan#0690/878523069302468630**
+- "Scam executor hvor han har pasted keyauth og sælger det. Han viser ikke engang sit "ui", fordi den ikke er der lmao
 
 
